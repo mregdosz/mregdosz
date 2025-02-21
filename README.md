@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @mregdosz
 - 👀 I’m interested in all things engineering and market related
 - 🌱 I’m currently learning how to become a real life iron man 
-- 💞️ I’m looking to collaborate on anything to get me expierence in what im trying to be
+- 💞️ I’m looking to collaborate on everything!
 - 📫 How to reach me mregdos000@citymail.cuny.edu  
 - ⚡ Fun fact: Very into Sci-Fi
 
